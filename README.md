@@ -226,4 +226,4 @@ February 2018 25$241
 February 2018 26$217
 February 2018 27$177
 February 2018 28$177
-Minimum Ticket Price from phxto chica $137
+Minimum Ticket Price from phx to chica $137
